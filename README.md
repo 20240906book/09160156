@@ -6,3 +6,9 @@
 還有明天
 嗎
 https://www.netflix.com/tw/title/81503460
+https://companiesmarketcap.com/#google_vignette
+
+美國 沙霧地阿拉伯 台灣 丹麥 中國
+
+大部分的市場資金 來源產品價值發展 
+跨國 供應鏈 合作
