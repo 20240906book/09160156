@@ -37,4 +37,9 @@ https://companiesmarketcap.com/#google_vignette
 市值 營收 現金
  不一定依樣
   不同文字 單位 內容
-  
+
+  做媒體 做記者
+   參加世界會議
+   詢問的呢
+   他的生活 思考方式 閱讀
+    歷史 說明認知
