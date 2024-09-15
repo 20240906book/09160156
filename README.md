@@ -16,3 +16,6 @@ https://companiesmarketcap.com/#google_vignette
 法 荷蘭 韓
 公司 市值 大股東 比例持有 
 上漲 上升影響
+
+意外 付費
+突然這麼多人嗎
