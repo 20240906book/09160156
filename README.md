@@ -12,3 +12,7 @@ https://companiesmarketcap.com/#google_vignette
 
 大部分的市場資金 來源產品價值發展 
 跨國 供應鏈 合作
+
+法 荷蘭 韓
+公司 市值 大股東 比例持有 
+上漲 上升影響
