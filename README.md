@@ -33,3 +33,8 @@ https://companiesmarketcap.com/#google_vignette
 人們都在等待你的 題目
 對吧
 股價 精品 企業
+
+市值 營收 現金
+ 不一定依樣
+  不同文字 單位 內容
+  
