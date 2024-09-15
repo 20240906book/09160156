@@ -21,3 +21,10 @@ https://companiesmarketcap.com/#google_vignette
 突然這麼多人嗎
 市場調查 馬來西亞越南
 它們南下了
+
+
+這是怎麼做到的
+只是倒退時間
+別放手
+
+最簡單 最單純 最基本的
