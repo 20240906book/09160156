@@ -28,3 +28,8 @@ https://companiesmarketcap.com/#google_vignette
 別放手
 
 最簡單 最單純 最基本的
+
+沒有人研究的你來研究
+人們都在等待你的 題目
+對吧
+股價 精品 企業
