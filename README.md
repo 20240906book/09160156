@@ -19,3 +19,5 @@ https://companiesmarketcap.com/#google_vignette
 
 意外 付費
 突然這麼多人嗎
+市場調查 馬來西亞越南
+它們南下了
